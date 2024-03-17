@@ -6,7 +6,7 @@
 🤞Thank you for visiting my GitHub page, and I hope it provides you with valuable insights.
 
 Best Regards,
-Diogo
+Gabriela Samagaio
 
 Credits:
 
